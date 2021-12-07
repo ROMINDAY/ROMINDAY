@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ROMINDAY or Alex🧍‍♂️ 
+- Hello!
 
 
 <!---
